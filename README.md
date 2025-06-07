@@ -1,4 +1,4 @@
-## i will mess with this space when i'm not losing my mind about academic bs✨
+**i will mess with this space when i'm not losing my mind about academic bs✨**
 
 <!--
 - 🔭 I’m currently working on ...
